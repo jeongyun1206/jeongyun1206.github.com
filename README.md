@@ -1,1 +1,1 @@
-# jeongyun1206.github.io
+# jeongyun1206.github.com
